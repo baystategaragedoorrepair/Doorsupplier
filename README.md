@@ -28,6 +28,25 @@ We provide installation, repair, and maintenance services for residential and co
 
 ---
 
+## Operating Hours
+⏰ **Monday – Saturday:** 8:00 AM – 6:00 PM  
+⏰ **Sunday:** Closed  
+
+---
+
+## Service Areas
+We proudly serve Milton and surrounding areas, including:  
+- Quincy  
+- Dorchester  
+- Braintree  
+- Dedham  
+- Canton  
+- Randolph  
+- Mattapan  
+- Boston (South Shore area)  
+
+---
+
 ## Contact
 📞 Phone: (216) 407-9325  
 🌐 Website: [baystategaragedoor.com](https://baystategaragedoor.com)  
